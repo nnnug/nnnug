@@ -1,4 +1,4 @@
-- im nnug!
+- im nnug! he/they/red
 - if you're seeing this NOT because of ponytown im very sorry
 - self proclaimed ponytown microcelebrity
 - feel free to int even if ur bait idgaf
