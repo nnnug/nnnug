@@ -1,6 +1,7 @@
-- im nnug! he/they/red
+- im nnug! he/they/red 
+- also known as schlunko on pt!
 - if you're seeing this NOT because of ponytown im very sorry
-- self proclaimed ponytown microcelebrity
+- self proclaimed ponytown microcelebrity 
 - feel free to int even if ur bait idgaf
 - i hide without telling ppl sue me
 - https://nnug.carrd.co/
