@@ -4,7 +4,7 @@
 - self proclaimed ponytown microcelebrity 
 - feel free to int even if ur bait idgaf
 - i hide without telling ppl sue me
-- https://nnug.carrd.co/
+- https://nnnug.carrd.co/#
 - https://en.pronouns.page/@nnug
 - http://txti.es/nnug
 - 
